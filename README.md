@@ -1,2 +1,1 @@
-# Practica_equipo
-Es en equipo 
+# aracelipolancov13@gmail.com
